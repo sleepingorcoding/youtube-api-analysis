@@ -1,1 +1,1 @@
-Analysis of fighting game youtube channel. Games such as Tekken, Soul Caliber, & DBZ.
+Analysis of fighting game youtube channel STK. Games such as Tekken, Soul Caliber, & DBZ.
